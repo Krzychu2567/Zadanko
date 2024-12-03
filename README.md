@@ -1,0 +1,1 @@
+Abecadło z komina spadło
