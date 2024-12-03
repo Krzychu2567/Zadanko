@@ -1,1 +1,1 @@
-Abecadło z komina spadło
+Abecadło z komina stoczyło się lub spadło.
